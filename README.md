@@ -1,0 +1,2 @@
+# Sevgilimi-tapdim-
+Sevgilimi tapdim 
